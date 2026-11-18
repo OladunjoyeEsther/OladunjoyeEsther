@@ -12,5 +12,5 @@ I enjoy turning data into clear insights- especially in finance, research, & rea
 ### Featured Project 
 - Financial Analysis Dashboard
 ### Connect with me
-LinkedIn https://www.linkedin.com/in/esther-oladunjoye-82470024a| Email: oladunjoyeesther21@gmail.com
+LinkedIn:https://www.linkedin.com/in/esther-oladunjoye-82470024a| Email: oladunjoyeesther21@gmail.com
 
